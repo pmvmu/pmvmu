@@ -51,7 +51,7 @@ A huge thank-you to our school administration, staff, and students for their sup
 
 ### 📣 Stay Connected  
 Follow us on:  
-- **Facebook**: [@YourSchoolMedia](https://instagram.com/YourSchoolMedia)  
-- **YouTube**: [Your School Media Channel](https://youtube.com/YourSchoolMedia)  
+- **Facebook**: PMVMU (https://www.facebook.com/polegodamahavidyalayamediaunit?mibextid=ZbWKwL)  
+- **YouTube**: PMVMU (https://youtube.com/@pmvmu)  
 
 📌 **Let’s create, capture, and celebrate together!**
